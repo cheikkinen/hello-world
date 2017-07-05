@@ -1,2 +1,2 @@
 # hello-world
-Starting up 
+Starting up learning! Pretty excited! 
